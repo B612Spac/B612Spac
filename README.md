@@ -60,9 +60,9 @@ Interactive Excel dashboard for tracking, analyzing, and forecasting personal in
 
 I'm actively looking for **data analyst roles** at startups and growth-stage companies where data can make a real difference.
 
-[!LinkedIn https://www.linkedin.com/in/blessing-laweh1/] 
+[LinkedIn- https://www.linkedin.com/in/blessing-laweh1/]
 
-[![Email] blessinglaweh@gmail.com] 
+[Email- blessinglaweh@gmail.com] 
 ---
 
 *"Without data, you're just another person with an opinion."* — W. Edwards Deming 😮‍💨
